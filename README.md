@@ -1,1 +1,0 @@
-# calculadora13z0tvyo
